@@ -1,2 +1,2 @@
- i really like shiny pokeronpa & danganmon 
+ i really like shiny pokeronpa 
 
